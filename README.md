@@ -18,6 +18,14 @@ ${\textsf{\color{#F46D37}  ͜| ͜͝ ︭𓈒ֵ۫ 𝄃⏝ ͜♡  ͝ ། ԃ𝐢ᑯ 
 
 &emsp;
 
+${\textsf{\color{#F46D37} ꕀ️ ഒ ˖ ｡ ⑅ }}$ e ${\textsf{\color{#F46D37} ꫂ ၴႅၴ ྀིྀིྀིྀིྀི  𓈒 ࿐ }}$
+
+${\textsf{\color{#F79A37} ﹒⸝⸝ ⧣₊˚ ➵ ︵︵﹕ }}$ e ${\textsf{\color{#F79A37} >>  ˘ }}$
+
+${\textsf{\color{#FED537} 𖥻 }}$ e ${\textsf{\color{#FED537} ₊⠀𓈒ֵ۫ 𝄃⏝ ⊹ }}$
+
+
+
 &emsp;
 
 <img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/b640cf24c316192776b48edb35e635cb682c5e84/Untitled259_20260628173829.png" alt="Description" width="1000">
