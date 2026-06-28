@@ -63,7 +63,13 @@ ${\textsf{\color{#FED537} ⍴𝕖𝗈pᥣ𝐞 𝒕𝚑αt ᥲrҽ cᥲ𝕡𝐭uя
 <a href="https://github.com/gaylukas"><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/56c7e1cd73a52747a5284fe9f9f6fcdbcc181f47/Untitled262_20260628183248.png" alt="Description" width="190">
 
 &emsp;
-<a href="https://github.com/orderofthepig"><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/56c7e1cd73a52747a5284fe9f9f6fcdbcc181f47/Untitled262_20260628183319.png" alt="Description" width="190">
+<a href="https://github.com/orderofthepig"><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/7af4d23b2f6fbe70508211dc95e4d31159e29256/Untitled262_20260628183319.png" alt="Description" width="190">
+
+&emsp;
+<a href="https://github.com/AcxerSonnellino"><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/56c7e1cd73a52747a5284fe9f9f6fcdbcc181f47/Untitled262_20260628183815.png" alt="Description" width="200">
+
+&emsp;
+<a href="https://github.com/shinjupaw"><img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/56c7e1cd73a52747a5284fe9f9f6fcdbcc181f47/Untitled262_20260628183652.png" alt="Description" width="400">
 &emsp;
 
 <img src="https://github.com/shinjupaw/4-SONNELLINOENTHUSIAST/blob/b640cf24c316192776b48edb35e635cb682c5e84/Untitled259_20260628173829.png" alt="Description" width="1000">
